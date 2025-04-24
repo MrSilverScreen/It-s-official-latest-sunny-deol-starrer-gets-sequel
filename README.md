@@ -1,4 +1,4 @@
-# It-s-official-latest-sunny-deol-starrer-gets-sequel
+# It's official latest sunny deol starrer gets sequel
 A brief newsletter on box office performance and announcement of sunny deols latest movie JAAT
 
 Mass director gopichand malineni's big bollywood debut Jaat is being received well in both audience and trade circles, the film has already collected 84cr+ in its first week and inching towards 100cr milestone, with good second weekend , it's showing a strong hold despite facing tough competition from kesari 2.
